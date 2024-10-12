@@ -1,0 +1,1 @@
+# sozlukler-ile-ilgili-islemler
